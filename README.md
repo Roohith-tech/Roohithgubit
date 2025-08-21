@@ -30,6 +30,23 @@ Scar, Mufasa's brother, is present at the presentation, and his resentment and d
 
 **Mufasa saving Simba :**
 
-When Scar pushed his brother to a stampede of antelopes,
+<img width="299" height="168" alt="image" src="https://github.com/user-attachments/assets/99885e69-1068-4922-a47d-e304ebf3dc70" />
 
+
+When Scar pushed his brother to a stampede of antelopes, Mufasa died in stampede but saved Simba 's life.
+Scar made Simba belive that Simba was responsible for his father's death and told him to run away.
+<img width="302" height="167" alt="image" src="https://github.com/user-attachments/assets/c70e4a86-974c-4509-9f98-aa5ab259c332" />
+Then Simba ran far away as he could , very far from the Pride Lands.
+Then he reached a dessert where he ran out of energy and was lying down hoplessly.
+Then a meercat ( Timon ) and a wild pig ( Pumbaa ) found him and carried him to their home.
+Simba agrees to live with them and so many years passes by.
+
+## Return of Simba
+
+As when Simba grows to an young adult he meets Nala and she tells that Scar has taken over the Pride Lands.
+On his way to the Pride Lands, he Meets Rafiki where he tells that he should be the king of the Pride Lands and not Scar.
+Simba doesn't feel much hope.
+It is then his father appears in the sky and gives him advice.
+<img width="300" height="168" alt="image" src="https://github.com/user-attachments/assets/27f13681-e5c5-4d1c-bf5c-02947aa981c6" />
+Nala guided Simga\
 
