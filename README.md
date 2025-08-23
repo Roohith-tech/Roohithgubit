@@ -34,7 +34,7 @@ Scar, Mufasa's brother, is present at the presentation, and his resentment and d
 
 <img width="299" height="168" alt="image" src="https://github.com/user-attachments/assets/99885e69-1068-4922-a47d-e304ebf3dc70" />
 
-
+Scar decided to kill his brother
 When Scar pushed his brother to a stampede of antelopes, Mufasa died in stampede but saved Simba 's life.
 Scar made Simba belive that Simba was responsible for his father's death and told him to run away.
 <img width="302" height="167" alt="image" src="https://github.com/user-attachments/assets/c70e4a86-974c-4509-9f98-aa5ab259c332" />
